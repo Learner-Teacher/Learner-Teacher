@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Learner-Teacher
+- 👋 Hi, I’m Abdulvoris
 - 👀 I’m interested in discussion
 - 🌱 I’m currently learning web
 - 💞️ I’m looking to collaborate on frinde
